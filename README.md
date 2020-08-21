@@ -1,4 +1,4 @@
-### Hi there 👋
+### life is struggle, just enjoy it 😩
 
 <!--
 **chuwt/chuwt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
